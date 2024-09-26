@@ -9,3 +9,6 @@ CART
 ORDER PLACED
 ![Checkout-09-26-2024_04_50_PM](https://github.com/user-attachments/assets/0e726f14-72ec-4c91-a6c0-557b0c930a37)
 
+   
+   
+    ###### Thank You ######
